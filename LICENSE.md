@@ -1,4 +1,4 @@
-# 
+# New momentum trading bot tools for Mac OS | Ultimate momentum trading bot tools for PC Windows. Featuring multi-dex aggregation and transaction batching — optimized for maximum performance on every platform.
 
 
 
